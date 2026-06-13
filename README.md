@@ -1,0 +1,1 @@
+# CECTSeminarBrno2026
